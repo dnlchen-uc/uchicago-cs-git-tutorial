@@ -1,1 +1,1 @@
-Daniel Chen
+Daniel Chen dnlchen@uchicago.edu
